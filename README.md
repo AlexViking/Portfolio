@@ -1,2 +1,0 @@
-# akh
-Personal Page
